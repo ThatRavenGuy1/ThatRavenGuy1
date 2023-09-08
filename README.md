@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ThatRavenGuy1
+- 👀 I’m interested in gameing and tech
+- 🌱 I’m currently learning IT system managment and security 
